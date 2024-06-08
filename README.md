@@ -7,7 +7,7 @@ Mr. Felix (Exquisite 4-star Michelin star bakery chef)
 Time open:
 Monday to Friday from 7am to 6pm
 Website Link:
-([https://chocolate-cakes-kijjl6g.gamma.site/](https://sweet-indulgence-bakery-lmlau87.gamma.site/))
+([[https://chocolate-cakes-kijjl6g.gamma.site/](https://sweet-indulgence-bakery-lmlau87.gamma.site/)](https://sweet-indulgence-bakery-lmlau87.gamma.site/))
 
 Location:
 Street - 123 Main Street, Anytown Stratford.
